@@ -1,1 +1,0 @@
-# SEIS616Homework3
